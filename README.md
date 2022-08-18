@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **anshitaprabhakar@gmail.com**
 
-- ⚡ Fun fact **If I could have any superpower,it would be to speak any language<br> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;so I could connect with anyone in the world.**
+- ⚡ Fun fact **People who Code referred to as coders ,programmers ,developers ,Computer Scientist and Software Engineers.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
